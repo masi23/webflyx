@@ -1,0 +1,6 @@
+- "How do i take of a mask when it stops being a mask, when it's as much a part of me as I am?"
+- "We're all living in each other's paranoia"
+- "I'm good at reading people. My secret? I look for the worst of in them."
+- "I've never found it hard to hack most people."
+- "Hello friend. This only works if you let go too."
+- "I wanted to save the world."
